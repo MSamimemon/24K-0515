@@ -1,6 +1,6 @@
 # **INTRODUCTION**
 ## Assalam Aliqum , I'm Muhammad Sami !
-![web.whatsapp.com/b1803d13-fac5-4ac3-8f5c-758fc701d0ff](https://github.com/samimemon/repository/blob/main/path/to/image.jpg)
+
 ### **SELF INTRO**
 + I have done my matriculation from County Cambridge High School Hyderabad.<br> 
 + I have done my FSC from Government Muslim Science Degree College Hyderabad.<br>
